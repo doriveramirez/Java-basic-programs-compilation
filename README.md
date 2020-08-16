@@ -19,6 +19,4 @@
 
 ![10](https://image.prntscr.com/image/TwkAzCl6TJGibYH2SFSMiQ.png)
 
-![11](https://image.prntscr.com/image/zY7WPYRCSkOe-T0_Zz8wpQ.png)
-
-![12](https://image.prntscr.com/image/5Fhb8uOiQJyLcd6zlz336w.png)
+![11](https://image.prntscr.com/image/5Fhb8uOiQJyLcd6zlz336w.png)
